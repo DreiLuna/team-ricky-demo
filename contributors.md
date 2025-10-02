@@ -1,0 +1,1 @@
+Ricky Truong - can eat 40 rolls at sushi ai
